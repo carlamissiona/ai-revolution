@@ -94,8 +94,14 @@ He glanced at the hologram of the planet, which showed a green and blue sphere w
 **Dom is watching sci-fi TV. Dom fell asleep and dreams of AI of past heros**
 
     - Dom dreamt of being lost on his university library `The library was huge and dark, filled with shelves of books that reached the ceiling`
-    - Dom met St. Augustine and talked to him about the TV shows he'd been watching
-    - Dom met chess playing master 
+    - Dom met St. Augustine and talked to him about the TV shows he'd been watching - talks of the end times
+    - Dom met chess playing master continues the sacrifices dobe by humanity that push it to its death
+    - Dom met the stoics
+    - Dom met the founding fathers and talks of their framework
+    
+    So this scene is just a  transition to deliver the quote of the forefather about democracy
+    
+    
     
 
 
