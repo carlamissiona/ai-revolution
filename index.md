@@ -87,7 +87,7 @@ He glanced at the hologram of the planet, which showed a green and blue sphere w
 
 <br>
 
-## Book
+## Book Outline
 
 <br>
 
@@ -99,10 +99,13 @@ He glanced at the hologram of the planet, which showed a green and blue sphere w
     - Dom met the stoics
     - Dom met the founding fathers and talks of their framework
     
-    So this scene is just a  transition to deliver the quote of the forefather about democracy 
+    So this scene is just a transition to deliver the quote of the forefather about democracy 
 
     
-     [Chapter 1](https://carlamissiona.github.io/ai-revolution/chapter-one) 
+- `Chapter 1`  - watching tv dreams
+- `Chapter 2`  - twist and turns
+    
+  [Chapter 1](https://carlamissiona.github.io/ai-revolution/chapter-one) 
     
     
 
