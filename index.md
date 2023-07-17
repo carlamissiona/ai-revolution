@@ -1,15 +1,21 @@
 
-## Layouts
+## Inspiration
 
-Refers to files within the `_layouts` directory, that define the markup for your theme.
+<br>
+What would diff philosophy say about AI
 
-  - `base.html` &mdash; The base layout that lays the foundation for subsequent layouts. The derived layouts inject their
-    contents into this file at the line that says ` {{ content }} ` and are linked to this file via
+  - `Book Inspiration Plato at Googleplex` &mdash; Stoics and AI
+
+  - ` humanitarian philosophy` &mdash;
     [FrontMatter](https://jekyllrb.com/docs/frontmatter/) declaration `layout: base`.
-  - `home.html` &mdash; The layout for your landing-page / home-page / index-page. [[More Info.](#home-layout)]
-  - `page.html` &mdash; The layout for your documents that contain FrontMatter, but are not posts.
-  - `post.html` &mdash; The layout for your posts.
+  
 
-#### Base Layout
+#### How to democratize AI more
+  - `Database - data democracy ` &mdash;  
+  - `Distributor Of Individual's AI Research or AI Research Center  - data democracy ` &mdash; For example scientist or PHD students have created AI 
+  
+  and do their scientific research - all research with AI algo mechanics will be published by a research center and open source it and earn in web service 
+
+  - `Database - data democracy ` &mdash; The layout for your posts.
 
 
