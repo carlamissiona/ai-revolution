@@ -9,7 +9,9 @@ What would diff philosophy say about AI
   - ` humanitarian philosophy` &mdash;
     [FrontMatter](https://jekyllrb.com/docs/frontmatter/) declaration `layout: base`.
 
-  - `What would the founding fathers say about ai` &mdash; Those who created framework that prevented a Single or central powers to take authority 
+  - `What would the founding fathers say about ai` &mdash; Those who created framework that prevented a Single or central powers to take authority
+  -  `AI will be a living character walking thru halls of university` &mdash; The AI brain keeps bumping on ghost of  spirit of intellectuals from old artficats of ancient 100 yrs ( 2023 ) The world is desolate trash site.
+  -  City of god 
     
   
 
@@ -21,6 +23,7 @@ What would diff philosophy say about AI
   - Make AI part of the gov or large part of gov process to make it look like more like public good  and it will be on public schools facilitiess etc
   - Have an AI tax for all so no corp will own AI but AI will serve us all - public good
   - Make AI a Super free goods thru FOSS
-  - `States provided guidance, legal bodies that implemented social norms and rules, safety, and a community guided by central laws. In return, citizens pay taxes and contribute to the state’s prosperity. Sounds good? Well, that’s what everyone thought, till states started acting like independent bodies and ruling their citizens. We are now treated as consumers and the value we receive from states drops constantly. `  -
+  - `States provided guidance, legal bodies that implemented social norms and rules, safety, and a community guided by central laws. In return, citizens pay taxes and contribute to the state’s prosperity. Sounds good? Well, that’s what everyone thought, till states started acting like independent bodies and ruling their citizens. We are now treated as consumers and the value we receive from states drops constantly. `
+  - 
 
 
