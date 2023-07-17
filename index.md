@@ -104,6 +104,10 @@ He glanced at the hologram of the planet, which showed a green and blue sphere w
     
 - `Chapter 1`  - watching tv dreams
 - `Chapter 2`  - twist and turns
+- `Chapter 3`  - philosophy
+- `Chapter 4`  - plan
+
+  
     
   [Chapter 1](https://carlamissiona.github.io/ai-revolution/chapter-one) 
     
