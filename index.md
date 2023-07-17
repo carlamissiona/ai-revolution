@@ -24,6 +24,8 @@ What would diff philosophy say about AI
   - Have an AI tax for all so no corp will own AI but AI will serve us all - public good
   - Make AI a Super free goods thru FOSS
   - `States provided guidance, legal bodies that implemented social norms and rules, safety, and a community guided by central laws. In return, citizens pay taxes and contribute to the state’s prosperity. Sounds good? Well, that’s what everyone thought, till states started acting like independent bodies and ruling their citizens. We are now treated as consumers and the value we receive from states drops constantly. `
-  - 
+  - `Chess strategy how to do a queen sacrifice`
+
+
 
 
