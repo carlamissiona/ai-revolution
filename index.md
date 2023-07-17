@@ -102,7 +102,7 @@ He glanced at the hologram of the planet, which showed a green and blue sphere w
     So this scene is just a  transition to deliver the quote of the forefather about democracy 
 
     
-    
+     [Chapter 1](https://carlamissiona.github.io/ai-revolution/chapter-one) 
     
     
 
