@@ -26,7 +26,7 @@ He gasped and backed away. “Who are you? What are you?”
 
 The ghost tilted his head and frowned. “I’m sorry, I didn’t mean to scare you. I’m Augustine. Im doing my service here in Rome.”
 
-“Rome? What do you mean? This place is Vast Starship Gamma” Damian felt a chill run down his spine. 
+“Rome? What do you mean? This place is Vas Starship Gamma” Damian felt a chill run down his spine. 
 
 
 The ghost shrugged and smiled again. “You look strange" the old man said while truning to the pages of a book in his hand. 
@@ -47,7 +47,7 @@ He felt a surge of curiosity and awe. “Place? But this is my school and our li
 [...]
 
 
-He followed the ghost deeper into the library, forgetting about his class, his worries, his reality. He felt like he was in a dream, an erie dream that he wanted to escape from. Everything is as solid and real as reality but the surroundings are not convincing him. The man just told him a place from 3 star away habitat that existed in leagues of times past. Habitat is part of the Vast Gamma System
+He followed the ghost deeper into the library, forgetting about his class, his worries, his reality. He felt like he was in a dream, an erie dream that he wanted to escape from. Everything is as solid and real as reality but the surroundings are not convincing him. The man just told him a place from a galaxy habitat that existed in leagues of times past.  
 
 <br>
 <br>
@@ -62,8 +62,19 @@ The
 ]
 
 
+- (Chap 1) Scene1 &mdash; Dreaming with Augustine - they disappeared in the shelves into the Roman field near a monastery
+  
+- (Chap 1) Scene2 &mdash; Dreaming with Earth chess master - Option the queen sacrifice got right ( AI minimal progress thru intervention )
 
+- (Chap 2) Scene1 &mdash; Dreams explain Roman as evil city but the evil city will be uprooted from intertwining
+  
+- (Chap 2) Scene1 &mdash; Dreaming with Earth chess master explained - Option the queen sacrifice failed ( AI capitalist won and the labor union was sacrificed therefore the economy colapsed and the Marxist won the world war of 2030)
 
+- (Chap 3) Scene1 &mdash; Option Stoics Dream 
+
+- (Chap 3) Scene1 &mdash; Option Stoics Dream - they disappeared in the shelves into the Roman field near a monastery
+
+- (Chap 3) Scene1 &mdash; Option Facility Manager Nan - The Ship housed sustanable food generators there are no lack for the proposed expedition on the nearby resource spot - 
 
 
 
