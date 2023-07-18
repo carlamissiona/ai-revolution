@@ -1,6 +1,6 @@
 
-In this room a boy was locked with his favorite TV session of The Last Sky Tower. His surroundings is within the expanse of Vast Startship Gamma at the backdrop
-the political unrest brought the star council and the Startship Commodore. The starship was no longer collecting energy for their parent star but instead is attracted to nearby resources that 
+In this room a boy was locked with his favorite TV session of The Last Sky Tower. His surroundings is within the expanse of Vast Starship Gamma at the backdrop
+the political unrest brought the star council and the Starship Commodore. The starship was no longer collecting energy for their parent star but instead is attracted to nearby resources that 
 it wants to take for itself.
 
 Outside the page calls for morning meal ration can be heared, but the boy left his record of the The Last Sky Tower playing on loop. Nothing else is obvious than the fact that the boy had 
@@ -17,6 +17,7 @@ lad. The current episode being played on the screen's media show reflects the cu
 Choice :
 
 A. Read to the next page about the UFE following paragraph
+
 B. Read the next page's about the boy 's dream
 
 
