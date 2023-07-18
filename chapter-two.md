@@ -12,11 +12,11 @@ overslept from watching the media show. You can choose to read about the followi
 
 “That sounds reasonable, But how do we ensure that this authority is fair and balanced?
 
-The story from the media session will continue until an interruption of the received signal from the disputed habitat. Damian this boy who sleeps on his couch innocently is bound to take a leave from his community study of today session. He is a Thelnu. Thelnu are peace loving and honest race. When encountering other races, Thelnu approach with a mixture of curiosity and caution. They harness the power of cosmic energies and have developed intricate energy-based weaponry and propulsion systems. [This starship houses many races from other galaxy]
+The story from the media session will continue until an interruption of the received signal from the disputed habitat. Damian this boy who sleeps on his couch innocently is bound to take a leave from his community study of today session. He is a Thelnu. Thelnu are peace loving and honest race. When encountering other races, Thelnu approach with a mixture of curiosity and caution. They harness the power of cosmic energies and have developed intricate energy-based weaponry and propulsion systems.  
 
-This lad is young engineer who studies and work simultaneously for the community
+This lad is young engineer who studies and work simultaneously for the community. Engineers from Thelnu are living for work until they get to return to their home civilization for recompensation to their noble monarch leader with their life energy. I know at is too devoted for aliens.
 
-Anyway your guide here at your service havent chanced any of my own kind
+[This starship houses many races from other galaxy]
 
 
 
