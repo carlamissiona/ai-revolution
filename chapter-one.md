@@ -26,18 +26,20 @@ He gasped and backed away. “Who are you? What are you?”
 
 The ghost tilted his head and frowned. “I’m sorry, I didn’t mean to scare you. I’m Augustine. Im doing my service here in Rome.”
 
-“Rome? What do you mean? This place is Starship Gamma” Damian felt a chill run down his spine. 
+“Rome? What do you mean? This place is Vast Starship Gamma” Damian felt a chill run down his spine. 
 
 
 The ghost shrugged and smiled again. “It’s okay, Calm down. You look strange. I don't think you can explain those outlandish clothing.”
 
-He looked around and saw that the books on the shelves were glowing with different colors. He realized that they were not ordinary books, but looking like strange lights or holographic projections. This isn't real Damian thought or the place is just a dreamy hallucination of his mind. He tried to recall the last episode of Last Sky Watch and then tried to remember if he locked his pod too.
+Damian looked around and saw that the books on the shelves were glowing with different colors. He realized that they were not ordinary books, but looking like strange lights or holographic projections. This isn't real Damian thought or the place is just a dreamy hallucination of his mind. He tried to recall the last episode of Last Sky Watch and then tried to remember if he locked his pod too.
 
 “What are these?” he asked. "Where am I" When he look up he noticed the book shelves end are reaching up the cieling and are glowing in outlines of like glittering lights. 
 
-The ghost’s eyes lit up. ""
+The ghost’s eyes lit up. 
 
-He felt a surge of curiosity and awe. “But this is my school and our library” 
+"You are not the first to hear the words of prophecy I am bound to tell you. Everyday a lot more things surprise me in this age. But you and those raiments those are just the same surprises I met the last month. Come let me show you the place prophesied just as I had shown to others "
+
+He felt a surge of curiosity and awe. “Place? But this is my school and our library” 
 
 [...]
 
