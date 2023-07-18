@@ -11,7 +11,7 @@ overslept from watching the media show. You can choose to read about the followi
 
 “That sounds reasonable, But how do we ensure that this authority is fair and balanced?
 
-The story from the media session will continue with an interruption of the received signal from the disputed habitat. Damian this boy 
+The story from the media session will continue until an interruption of the received signal from the disputed habitat. Damian this boy who sleeps on his couch innocently is bound to take a leave from his community study of today session. He is a Thelnu
 
 
 
