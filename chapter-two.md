@@ -5,15 +5,25 @@ it wants to take for itself.
 
 Outside the page calls for morning meal ration can be heared, but the boy left his record of the The Last Sky Tower playing on loop. Nothing else is obvious than the fact that the boy had 
 overslept from watching the media show. You can freely read the following description of the Last Sky Tower's episode but more interestingly let me walk you thru the mind of the sleeping 
-lad. The current episode being played on the screen's media show reflects the current time
+lad. The current episode being played on the screen's media show reflects the current times issues
+
+“Let me make this clear, This planet belongs to humanity as a whole. It is our duty to explore it, ” said the UEF delegate. The media screen flashed a middle-aged man with a stern face.
+
+“That’s easy for you to say,”  The media blared the  MR delegates voice
+
+“That sounds reasonable, But how do we ensure that this authority is fair and balanced?
 
 
 Choice :
 
-A. Read the following paragraph
+A. Read to the next page about the UFE following paragraph
 B. Read the next page's about the boy 's dream
 
 
+
+
+
+NEXT PAGE CHOICE A
 `The room was dimly lit by the holographic projections of various planets and stars. A group of people, wearing sleek suits and earpieces, were seated around a circular table, each with a tablet in front of them. They were the representatives of the United Earth Federation, the Solar System Alliance, the Martian Republic, and the Outer Rim Coalition. They were here to discuss the fate of the newly discovered habitable world in the Alpha Centauri system.
 
 “Let me make this clear,” said the UEF delegate, a middle-aged man with a stern face. “This planet belongs to humanity as a whole. It is our duty to explore it, colonize it, and protect it from any potential threats. We cannot afford to let petty rivalries and selfish interests get in the way of our destiny.”
