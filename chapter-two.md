@@ -26,13 +26,13 @@ Its unusual for Thelnu to be undisciplined. Let see.
 
 Choice :
 
-A. Read to the next page about the UFE following paragraph
+A. [Read to the next page about the UFE following paragraph](https://carlamissiona.github.io/ai-revolution/chapter-two-opt-a)
 
-B. Read the next page's #1 about the boy's dream
+B. [Read the next page's #1 about the boy's dream](https://carlamissiona.github.io/ai-revolution/chapter-two-opt-b)
 
-C. Read the next page's #2 if you like to wake up the boy
+C. [Read the next page's #2 if you like to wake up the boy](https://carlamissiona.github.io/ai-revolution/chapter-two-opt-c)
 
-D. Read the next page's #3 Nan
+D. [Read the next page's #3 Nan the facility manager](https://carlamissiona.github.io/ai-revolution/chapter-two-opt-d)
 
 
  
