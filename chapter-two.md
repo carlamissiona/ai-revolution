@@ -17,8 +17,9 @@ The story from the media session will continue until an interruption of the rece
 This lad is young engineer who studies and work simultaneously for the community. Engineers from Thelnu are living for work until they get to return to their home civilization for recompensation to their noble monarch leader with their life energy. I know at is too devoted for aliens.
 
 [This starship houses many races from other galaxy]
-Alright heres my confession I havent seen much of sensient creatures as aware as my kind but in this ship I have my companion Nan shes an actual living alien from Khahiks and she is gifted with 
-If you like I can
+Alright heres my confession I havent seen much of sensient creatures as aware as my kind but in this ship I have my companion Nan shes an actual living alien from Khahiks and she is gifted with my abilities too I can take you to her if you like but I m curios about Damian.
+
+Its unusual for Thelnu to be undisciplined. Let see. 
 
 
 
