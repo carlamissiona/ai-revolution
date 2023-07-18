@@ -4,8 +4,8 @@ the political unrest brought the star council and the Starship Commodore. The st
 it wants to take for itself.
 
 Outside the page calls for morning meal ration can be heared, but the boy left his record of the The Last Sky Tower playing on loop. Nothing else is obvious than the fact that the boy had 
-overslept from watching the media show. You can freely read the following description of the Last Sky Tower's episode but more interestingly let me walk you thru the mind of the sleeping 
-lad. The current episode being played on the screen's media show reflects the current times issues
+overslept from watching the media show. You can choose to read about the following story of the Last Sky Tower's episode as directed at the foot of the page. I aim to produce more perception and challenging thoughts to anyone I encounter that's why I am called The Guide. I only wish to present to you my knowledge of this galaxy system and do not wish to project harmful atmosphere to you.
+The current episode being played on the screen's media show reflects the current times issues. 
 
 “Let me make this clear, This planet belongs to humanity as a whole. It is our duty to explore it, ” said the UEF delegate. The media screen flashed a middle-aged man with a stern face.
 
@@ -19,6 +19,7 @@ Choice :
 A. Read to the next page about the UFE following paragraph
 
 B. Read the next page's about the boy 's dream
+
 
 
 
