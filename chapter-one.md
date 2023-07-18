@@ -29,7 +29,10 @@ The ghost tilted his head and frowned. “I’m sorry, I didn’t mean to scare 
 “Rome? What do you mean? This place is Vast Starship Gamma” Damian felt a chill run down his spine. 
 
 
-The ghost shrugged and smiled again. “It’s okay, Calm down. You look strange. I don't think you can explain those outlandish clothing.”
+The ghost shrugged and smiled again. “You look strange" the old man said while truning to the pages of a book in his hand. 
+
+"It’s okay, Calm down. You look strange. I don't think you can explain those outlandish clothing.” Augustine said. 
+
 
 Damian looked around and saw that the books on the shelves were glowing with different colors. He realized that they were not ordinary books, but looking like strange lights or holographic projections. This isn't real Damian thought or the place is just a dreamy hallucination of his mind. He tried to recall the last episode of Last Sky Watch and then tried to remember if he locked his pod too.
 
@@ -44,14 +47,17 @@ He felt a surge of curiosity and awe. “Place? But this is my school and our li
 [...]
 
 
-He followed the ghost deeper into the library, forgetting about his class, his worries, his reality. He felt like he was in a dream, a wonderful dream that he never wanted to wake up from. 
+He followed the ghost deeper into the library, forgetting about his class, his worries, his reality. He felt like he was in a dream, an erie dream that he wanted to escape from. Everything is as solid and real as reality but the surroundings are not convincing him. The man just told him a place from 3 star away habitat that existed in leagues of times past. Habitat is part of the Vast Gamma System
+
 <br>
 <br>
 <br>
 
 [... - He followed Augustine in the bookshelves he could clearly see the ghost figure walked thru the shelves St. Augustine told him of his dream 
 
-I can seen that you can clearly notice the (feel) of this ominous place. Dear man I'm telling you this, not a stone in this place will be left unturned at the hour of the (intertwinings removal)
+I can seen that you can clearly notice the how dark this place. My lad I'm telling you this, not a dust in this place will be left unturned at the hour of the removal of worlds intertwinings.
+
+The
 . . . next chapters will describe the projections of the evil of AI
 ]
 
